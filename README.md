@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sourav-29
+- 🌱 I’m currently learning programming fundamentals
+- 📫 How to reach me ... email- 29souravroy@gmail.com
